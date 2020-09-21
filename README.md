@@ -1,6 +1,6 @@
 # **Welcome good old world**
 
-## *I'm Emely Salmeron* :smile:
+## *I'm Emely Salmeron* 
 
 This it's my [Github profile](https://github.com/emelysalmeron)
 
