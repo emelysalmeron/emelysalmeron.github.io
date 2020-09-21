@@ -8,7 +8,7 @@ Here you have some facts about me:
 
 * Im from El Salvador, Central America 
 * As a proud salvadorean I love pupusas (It's our most famous typical dish)
-* I love tea. I could drink at any time of the day. Fav teas are green tea, chamomile and mint.
+* I love tea. I could drink it at any time of the day. Fav teas are green tea, chamomile and mint.
 * Friendly and easy going person
 * Dog person
 * Im a "do it" person
