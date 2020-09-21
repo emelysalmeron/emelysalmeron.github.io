@@ -4,7 +4,7 @@
 
 This it's my [Github profile](https://github.com/emelysalmeron)
 
-Here you have some facts about me: :grin:
+Here you have some facts about me:
 
 * Im from El Salvador, Central America 
 * As a proud salvadorean I love pupusas (It's our most famous typical dish)
